@@ -2,7 +2,7 @@
 
 I am interested in Data Science, Web Development, and Product Management. I am always eager to learn and gain hands-on experience in new tech-projects.
 
-Don't forget to have a look at my CV and send me a "connect" request!
+Don't forget to add me on LinkedIn - linkedin.com/in/shakeszka
 
 ⚡ Open to new opportunities and connections!
 
